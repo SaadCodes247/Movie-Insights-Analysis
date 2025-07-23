@@ -41,7 +41,7 @@
   * Continue to build on your strengths by maintaining this high level of clarity and engagement in future presentations 
   * Consider exploring even more industry context or external factors for an added layer of depth, if time allows 
 
-### Overall, this was a polished, insightful, and highly engaging presentation. You demonstrated not only strong analytical skills but also excellent communication and stakeholder awareness. Fantastic!
+### This was a polished, insightful, and highly engaging presentation. You demonstrated not only strong analytical skills but also excellent communication and stakeholder awareness. Fantastic work!
 # Outcome: Merit 
 
 
